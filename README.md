@@ -1,2 +1,2 @@
 # -topkatop-
-Супер "лучший" карты от topkatop
+ "лучшие" карты от topkatop
